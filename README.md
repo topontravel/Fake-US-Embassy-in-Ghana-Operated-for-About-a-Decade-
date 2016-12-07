@@ -1,2 +1,14 @@
 # Fake-US-Embassy-in-Ghana-Operated-for-About-a-Decade-
 A Fake US Embassy in the Ghanaian capital of Accra has been issuing fake U.S. visas and false distinguishing proof records for about 10 years, as indicated by the U.S. State Department. A late online story discharged by the State Department’s Diplomatic Security open issues office itemized how this fake government office’s long criminal history at last finished this past summer when the Regional Security Office, in co-operation with Ghanaian powers, close down the operation. The article started flowing generally throughout the end of the week and a State Department official affirmed the report today. Office authorities demand that – as far as anyone is concerned – nobody who acquired a fake visa could enter the U.S.
+The building that housed the fake embassy flew the American flag three days of the week and featured a photo of President Obama inside. Flyers and billboards in Ghana and neighboring Cote d'Ivoire and Togo advertised their fraudulent services for the cost of $6,000.
+
+An investigation found that the operation was run by Ghanaian and Turkish organized crime rings, as well as a Ghanaian attorney practicing immigration and criminal law. The State Department said Turkish citizens who spoke English and Dutch posed as "consular officers."
+
+They paid off corrupt officials when suspicions arose over their illegal activities. Those corrupt officials also provided real bank documents so they could be altered by the criminals.
+An informant tipped off the Regional Security Office that a fake U.S. embassy and a fake Netherlands embassy were operating in Accra. At the time, diplomatic security agents were looking into a separate fraud investigation under "Operation Spartan Vanguard," which works to address trafficking and fraud plaguing the U.S. embassy in Ghana and the region more broadly.
+
+"The investigation identified the main architects of the criminal operation, and two satellite locations (a dress shop and an apartment building) used for operations," the State Department article said. "The fake embassy did not accept walk-in visa appointments; instead, they drove to the most remote parts of West Africa to find customers. They would shuttle the customers to Accra, and rent them a room at a hotel nearby. The Ghanaian organized crime ring would shuttle the victims to and from the fake embassies. Locating the document vendor within the group led investigators to uncover the satellite locations and key players."
+
+A series of raids led to the arrest of several suspects and collected evidence that included a laptop, cell phones, 150 passports from 10 countries, legitimate and counterfeit visas, and counterfeit identity documents.
+
+The Ghanaian police plan to pursue the arrest of several other suspects still at large, including the Turkish organized crime group, according to the State Department article.
